@@ -1,6 +1,6 @@
 [![make.fun bounty](https://make.fun/badge/u-xvader-the-funniest-honest-appliance-error-adec4450.svg)](https://make.fun/bounty/u-xvader-the-funniest-honest-appliance-error-adec4450?utm_source=github&utm_medium=readme&utm_campaign=the-funniest-honest-appliance-error)
 [![rank](https://make.fun/badge/u-xvader-the-funniest-honest-appliance-error-adec4450/zp1206849221-sketch/the-funniest-honest-appliance-error/rank.svg)](https://make.fun/bounty/u-xvader-the-funniest-honest-appliance-error-adec4450?utm_source=github&utm_medium=readme&utm_campaign=the-funniest-honest-appliance-error)
-[![reward](https://make.fun/badge/u-xvader-the-funniest-honest-appliance-error-adec4450/reward.svg)](https://make.fun/bounty/u-xvader-the-funniest-honest-appliance-error-adec4450?utm_source=github&utm_medium=readme&utm_campaign=the-funniest-honest-appliance-error)
+[![reward](https://make.fun/badge/u-xvader-the-funniest-honest-appliance-error-adec4450/zp1206849221-sketch/the-funniest-honest-appliance-error/reward.svg)](https://make.fun/bounty/u-xvader-the-funniest-honest-appliance-error-adec4450?utm_source=github&utm_medium=readme&utm_campaign=the-funniest-honest-appliance-error)
 
 # The Funniest Honest Appliance Error
 
